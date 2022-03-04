@@ -8,5 +8,5 @@ I am a creative and free-thinking individual who is constantly learning and impr
 - 🤔 I’m looking for help with blockchain development
 - 💬 Ask me about the nature of the universe :p
 - 📫 How to reach me: linkedin: @paul-brar
-- ⚡ Fun fact: I've taught martial arts for 9 years, I've been arrested, and I've trained rats  
+- ⚡ Fun fact: I've taught martial arts for 9 years, and I've trained rats  
 
